@@ -23,7 +23,7 @@
 
 - 📄 Know about my experiences [Not-Available](Not-Available)
 
-- ⚡ Fun fact **I am interested to fishing,Music,Traveling**
+- ⚡ Fun fact **I am interested in fishing, Music, Traveling**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
