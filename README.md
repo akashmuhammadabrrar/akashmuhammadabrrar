@@ -1,4 +1,4 @@
-![Cover Banner](https://i.ibb.co.com/svDb01df/Black-Modern-Vlogger-You-Tube-Banner-Last-One.png)
+![Cover Banner](https://i.ibb.co.com/3m2JBsKZ/Last-Banner.png)
 
 
 
