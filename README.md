@@ -17,7 +17,7 @@
 
 - 🤝 I’m looking for help with **Experienced People**
 
-- 👨‍💻 All of my projects are available at [https://github.com/AkashMAbrrar](https://github.com/AkashMAbrrar)
+- 👨‍💻 All of my projects are available at [https://github.com/AkashMAbrrar](https://github.com/akashmuhammadabrrar)
 
 - 📝 I regularly write articles on [Not-Available](Not-Available)
 
